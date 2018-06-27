@@ -1,0 +1,2 @@
+Cơ địa lão hóa sớm cũng có thể là nguyên nhân gây thoái hóa cột sống thắt lưng. Nếu như cha mẹ bị thoái hóa khớp thì con cái cũng có nguy cơ mắc bệnh cao hơn bình thường.
+https://chuabenhkhoptambinh.wordpress.com/2018/06/27/co-di%cc%a3a-lao-hoa-som-cu%cc%83ng-co-the%cc%89-la-nguyen-nhan-gay-thoai-hoa-cot-song-that-lung-neu-nhu-cha-me-bi-thoai-hoa-khop-thi-con-cai-cung-co-nguy-co-mac-benh-cao-hon-binh-t-3/
